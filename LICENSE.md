@@ -1,4 +1,4 @@
-# 
+# rare Parallels Desktop for macOS Helper | clipboard-sharing + USB-passthrough offers the most advanced Parallels Desktop for macOS helper, with clipboard-sharing and
 
 
 
